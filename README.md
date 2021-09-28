@@ -1,3 +1,8 @@
+Table of Contents
+=================
+
+   * [Previous Games](#previous-games)
+   * [Photo](#photo)
 
 ## Previous Games
 
